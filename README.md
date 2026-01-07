@@ -5,7 +5,7 @@ THE OWNERS:
 Moe: https://discord.com/channels/@me/1458293625598513153
 Cosmic: https://discord.com/channels/@me/1458286214632308808
 
-THEIR ADD: 
+THEIR AD: 
 
 # 🎉 Euphoria – The BEST FREE Gorilla Tag Mod Menu 🎉
 
